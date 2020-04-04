@@ -6,3 +6,4 @@ please visit my youtube channel it is Soccer Twin Broz [Soccer Twin Broz](http:/
 ![this is my image](https://yt3.ggpht.com/a/AGF-l78WHRc__LXMHwSggPcsLGHkRBcnuZIKoQXGHA=s900-c-k-c0xffffffff-no-rj-mo)
 I am the one on the right!
 [this is my youtube channel!](https://www.youtube.com/channel/UCFJSP38ayhrl5xLAOIanhug)
+[about me](about)
